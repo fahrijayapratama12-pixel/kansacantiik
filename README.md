@@ -1,0 +1,2 @@
+# kansacantiik
+untuk pacarku tersayang
